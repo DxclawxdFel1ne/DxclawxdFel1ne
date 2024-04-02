@@ -10,6 +10,15 @@
 *๋࣭⭑ Proshippers / comshippers or any adult x minor ships from any fandom im in . **( whomever ships those are sick to the bone . )***
 
 *๋࣭⭑ "Shadow is 50 !!" **( Shadow cannot age nor does he even have one , he's been in CRYOSTASIS for 50+ years , doesnt make him physically 50 . )***
+ 󠁕󠁕󠁕󠁕󠁕󠁕
+ **⋆ SHIPS DNI ⋆**
+
+*๋࣭⭑ Shadamy **( "sega removed the ages though !!" dont care Amy is still 12 and will always be even if their ages had been removed . )***
+
+*󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕๋࣭⭑ Tails x any character **( tailsunami/p or tails x cosmo/p is valid for me . )***
+
+*๋࣭⭑ Shadouge **( i see them as siblings sorry not sorry )***
+
 
 ![gif #3](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/6dfda502-fc4d-4a66-8c8f-46cd04501443)
 
