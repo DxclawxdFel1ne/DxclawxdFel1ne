@@ -1,4 +1,4 @@
-![gif](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/449313ce-2312-4834-a16c-7f16ba85af30)
+![me](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/5fa8c3cb-29ff-4fe1-b649-42648b07c869)
 
 **—— ★ ❝ 早くこの地獄から抜け出せるといいですね！❝ ★ ——**
 
