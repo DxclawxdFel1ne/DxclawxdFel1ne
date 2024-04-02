@@ -1,4 +1,4 @@
-![gif #9](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/204803c3-1f2e-4e05-93a6-b1b5ffc23242)
+![laughingstock](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/550d5dff-a92f-4a26-87e0-e34fcc0558ff)
 
 
 **—— ★ ❝ あなたがこの偽者を扱えるかどうか見てみましょう! ❝ ★ ——**
