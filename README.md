@@ -24,4 +24,5 @@
 
 *๋࣭⭑ i'm a really socially awkward person so you will find me either talking alot bluntly or not talking at all .*
 
-![gif #4](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/530238ea-6994-4dca-84ce-9ef13f3ad63d)
+![gif #6](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/38dbc7dc-68ea-434d-8b07-e92855d8835a)
+
