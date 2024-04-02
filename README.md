@@ -8,7 +8,8 @@
 
 *๋࣭⭑ "Shadow is 50 !!" **( Shadow cannot age nor does he even have one , he's been in CRYOSTASIS for 50+ years , doesnt make him physically 50 . )***
 
-![hey](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/09afa308-11b0-4fbe-8c3f-b326bd92230b)
+![besties notreally](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/cad90cfa-b455-476e-9db3-08a2ed1af372)
+
 
 **—— ★ ❝ 星はあなたのために輝いています、私の愛する人。❝ ★ ——**
 
@@ -23,3 +24,6 @@
 *๋࣭⭑ i make kys / kms / sexual jokes **( please tell me if you're uncomfortable with them and i'll stop ! )***
 
 *๋࣭⭑ i'm a really socially awkward person so you will find me either talking alot bluntly or not talking at all .*
+
+![gif #3](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/e80ef760-3cf6-4348-8539-32120336010e)
+
