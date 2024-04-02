@@ -1,4 +1,5 @@
-![me](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/5fa8c3cb-29ff-4fe1-b649-42648b07c869)
+![gif #9](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/204803c3-1f2e-4e05-93a6-b1b5ffc23242)
+
 
 **—— ★ ❝ あなたがこの偽者を扱えるかどうか見てみましょう! ❝ ★ ——**
 
