@@ -11,6 +11,7 @@
 
 *๋࣭⭑ "Shadow is 50 !!" **( Shadow cannot age nor does he even have one , he's been in CRYOSTASIS for 50+ years , doesnt make him physically 50 . )***
  󠁕󠁕󠁕󠁕󠁕󠁕
+ 
  **⋆ SHIPS DNI ⋆**
 
 *๋࣭⭑ Shadamy **( "sega removed the ages though !!" dont care Amy is still 12 and will always be even if their ages had been removed . )***
