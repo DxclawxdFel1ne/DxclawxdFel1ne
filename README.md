@@ -8,6 +8,7 @@
 
 *๋࣭⭑ "Shadow is 50 !!" **( Shadow cannot age nor does he even have one , he's been in CRYOSTASIS for 50+ years , doesnt make him physically 50 . )***
 
+![hey](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/09afa308-11b0-4fbe-8c3f-b326bd92230b)
 
 **—— ★ ❝ 星はあなたのために輝いています、私の愛する人。❝ ★ ——**
 
