@@ -1,6 +1,4 @@
-![Uploading gif #2.gif…]()
-
-
+![gif](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/449313ce-2312-4834-a16c-7f16ba85af30)
 
 **—— ★ ❝ 早くこの地獄から抜け出せるといいですね！❝ ★ ——**
 
