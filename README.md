@@ -14,13 +14,16 @@
  
  **⋆ SHIPS DNI ⋆**
 
-*๋࣭⭑ Shadamy **( "sega removed the ages though !!" dont care Amy is still 12 and will always be even if their ages had been removed . )***
+*๋࣭⭑ shadamy **( "sega removed the ages though !!" dont care Amy is still 12 and will always be even if their ages had been removed . )***
 
-*󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕๋࣭⭑ Tails x any character **( tailsunami/p or tails x cosmo/p is alright w/ me . )***
+*๋࣭⭑ tails x any character **( tailsunami/p or tails x cosmo/p is alright w/ me . )***
 
-*๋࣭⭑ Shadouge **( i see them as siblings sorry not sorry )***
+*๋࣭⭑ shadouge **( i see them as siblings sorry not sorry )***
 
-*๋࣭  sonamy
+*๋࣭⭑ sonamy **( mb chat )***
+
+*๋࣭⭑ 
+
 ![gif #3](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/6dfda502-fc4d-4a66-8c8f-46cd04501443)
 
 **—— ★ ❝ 星はあなたのために輝いています、私の愛する人。❝ ★ ——**
