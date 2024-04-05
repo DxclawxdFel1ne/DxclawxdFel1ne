@@ -38,7 +38,7 @@
 
 *๋࣭⭑ please use **tone-tags** with me ! , i cant really tell whether you're joking or not and that really makes me itch my brain trying to tell if you are or not , i will move away from you or go nonverbal when uncomfortable with something or someone (｡•ㅅ•｡)♡*
 
-*๋࣭⭑ i make kys / kms / sexual jokes **( please tell me if you're uncomfortable with them and i'll stop ! )***
+*๋࣭⭑ i make kys / kms / sexual jokes **( inform me if your uncomfortable with any of these things )***
 
 *๋࣭⭑ i'm a really socially awkward person so you will find me either talking alot bluntly or not talking at all .*
 
