@@ -16,13 +16,15 @@
 
 *๋࣭⭑ shadamy **( "sega removed the ages though !!" dont care Amy is still 12 and will always be even if their ages had been removed . )***
 
-*๋࣭⭑ tails x any character **( tailsunami/p or tails x cosmo/p is alright w/ me . )***
+*๋࣭⭑ tails x any character **( tails x kitsunami/p , tails x cosmo/p or cream x tails/p is alright w/ me . )***
 
 *๋࣭⭑ shadouge **( i see them as siblings sorry not sorry )***
 
 *๋࣭⭑ sonamy **( mb chat )***
 
-*๋࣭⭑ 
+*๋࣭⭑ surge x kitsunami
+
+*๋࣭⭑ cream x any character **( tails x cream/p is alr )***
 
 ![gif #3](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/6dfda502-fc4d-4a66-8c8f-46cd04501443)
 
