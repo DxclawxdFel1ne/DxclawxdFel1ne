@@ -40,7 +40,7 @@
 
 *๋࣭⭑ i make kys / kms / sexual jokes **( inform me if your uncomfortable with any of these things )***
 
-*๋࣭⭑ i'm a really socially awkward person so you will find me either talking alot bluntly or not talking at all .*
+*๋࣭⭑ i'm a really socially awkward person so you will find me either yapping to my friends alot or idk .*
 
 ![gif #7](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/dd4018d9-8a29-49ef-96d8-b4c8d93f28f7)
 
