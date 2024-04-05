@@ -7,7 +7,7 @@
 
 *๋࣭⭑ Older than 19/20 .*
 
-*๋࣭⭑ Proshippers / comshippers or any adult x minor ships from any fandom im in . **( whomever ships those are sick to the bone . )***
+*๋࣭⭑ Proshippers / comshippers or any adult x minor ships from any fandom im in .*
 
 *๋࣭⭑ "Shadow is 50 !!" **( Shadow cannot age nor does he even have one , he's been in CRYOSTASIS for 50+ years , doesnt make him physically 50 . )***
  󠁕󠁕󠁕󠁕󠁕󠁕
