@@ -22,7 +22,7 @@
 
 *๋࣭⭑ sonamy **( mb chat )***
 
-*๋࣭⭑ surge x kitsunami
+*๋࣭⭑ surge x kitsunami*
 
 *๋࣭⭑ cream x any character **( tails x cream/p is alr )***
 
