@@ -34,7 +34,7 @@
 
 *๋࣭⭑ im a forgettative and slightly blunt person , i promise im **mostly** nice though !ㅤ/ᐠ - ˕ -マ **( sometimes i'd forget that you're my friend so feel free to remind me ! )***
 
-*๋࣭⭑ flirts from other people make me really **uncomfy** ! jokingly flirts are alright though ^_^ , other than that i dont mind flirts from my **partner** or **very close friends** !! <3*
+*๋࣭⭑ flirts from other people make me really **uncomfy** , jokingly flirts are alright though ^_^ , other than that i dont mind flirts from my **partner** or **very close friends** !! <3*
 
 *๋࣭⭑ please use **tone-tags** with me ! , i cant really tell whether you're joking or not and that really makes me itch my brain trying to tell if you are or not , i will move away from you or go nonverbal when uncomfortable with something or someone (｡•ㅅ•｡)♡*
 
