@@ -1,11 +1,10 @@
-![laughingstock](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/550d5dff-a92f-4a26-87e0-e34fcc0558ff)
-
+*![download (1)](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/322acd98-c1cb-47d9-99ab-db6d7061bd41)
 
 **—— ★ ❝ あなたがこの偽者を扱えるかどうか見てみましょう! ❝ ★ ——**
 
 󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕**⋆ DNI ⋆**
 
-*๋࣭⭑ under 11 and such , older than 20 .*
+*๋࣭⭑ under 11 and such , older than 20 .
 
 *๋࣭⭑ Proshippers ,  comshippers , transphobic / homophobic , etc etc .*
 
