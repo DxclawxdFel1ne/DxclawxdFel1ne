@@ -11,7 +11,7 @@
 *๋࣭ "Shadow is 50 !!" , "sonadow is illegal !" ***( Shadow cannot age nor did sega mention how old he is , he's in a body of a 15 year old . )****
  
  󠁕󠁕󠁕󠁕
-![gif #3](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/6dfda502-fc4d-4a66-8c8f-46cd04501443)
+![Gifs animados de estrellas (1)](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/58405d7e-fba1-47cf-8615-377d613e579f)
 
 **—— ★ ❝ 星はあなたのために輝いています、私の愛する人。❝ ★ ——**
 
