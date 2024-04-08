@@ -9,6 +9,7 @@
 *๋࣭⭑ Proshippers,  comshippers , sexists .*
 
 *๋࣭⭑ "Shadow is 50 !!" **( Shadow cannot age nor does he even have one , he's been in CRYOSTASIS for 50+ years , doesnt make him physically 50 . )***
+ 
  󠁕󠁕󠁕󠁕
 ![gif #3](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/6dfda502-fc4d-4a66-8c8f-46cd04501443)
 
