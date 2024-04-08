@@ -9,7 +9,7 @@
 
 *๋࣭⭑ Proshippers ,  comshippers , transphobic / homophobic , etc etc .*
 
-*๋࣭⭑ "Shadow is 50 !!" , "sonadow is illegal !" ***( Shadow cannot age nor did sega mention how old he is , he's in a body of a 15 year old . )***
+*๋࣭ "Shadow is 50 !!" , "sonadow is illegal !" ***( Shadow cannot age nor did sega mention how old he is , he's in a body of a 15 year old . )****
  
  󠁕󠁕󠁕󠁕
 ![gif #3](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/6dfda502-fc4d-4a66-8c8f-46cd04501443)
