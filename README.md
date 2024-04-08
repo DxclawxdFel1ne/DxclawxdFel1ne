@@ -4,43 +4,27 @@
 **—— ★ ❝ あなたがこの偽者を扱えるかどうか見てみましょう! ❝ ★ ——**
 
 󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕**⋆ DNI ⋆**
+*๋࣭⭑ under 11 and such , older than 20 .*
 
-*๋࣭⭑ Older than 19/20 .*
-
-*๋࣭⭑ Proshippers / comshippers or any adult x minor ships from any fandom im in .*
+*๋࣭⭑ Proshippers,  comshippers , sexists .*
 
 *๋࣭⭑ "Shadow is 50 !!" **( Shadow cannot age nor does he even have one , he's been in CRYOSTASIS for 50+ years , doesnt make him physically 50 . )***
- 󠁕󠁕󠁕󠁕󠁕󠁕
- 
- **⋆ SHIPS DNI ⋆**
-
-*๋࣭⭑ shadamy **( "sega removed the ages though !!" dont care Amy is still 12 and will always be even if their ages had been removed . )***
-
-*๋࣭⭑ tails x any character **( tails x kitsunami/p , tails x cosmo/p or cream x tails/p is alright w/ me . )***
-
-*๋࣭⭑ shadouge **( i see them as siblings sorry not sorry )***
-
-*๋࣭⭑ sonamy **( mb chat )***
-
-*๋࣭⭑ surge x kitsunami*
-
-*๋࣭⭑ cream x any character **( tails x cream/p is alr )***
-
+ 󠁕󠁕󠁕󠁕
 ![gif #3](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/6dfda502-fc4d-4a66-8c8f-46cd04501443)
 
 **—— ★ ❝ 星はあなたのために輝いています、私の愛する人。❝ ★ ——**
 
 󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕󠁕**⋆ RBYI . ⋆**
 
-*๋࣭⭑ im a forgettative and slightly blunt person , i promise im **mostly** nice though !ㅤ/ᐠ - ˕ -マ **( sometimes i'd forget that you're my friend so feel free to remind me ! )***
+*❝ please do not take inspo off my skins or heavily copy them , i take too much trial and error on doing them .*
 
-*๋࣭⭑ flirts from other people make me really **uncomfy** , jokingly flirts are alright though ^_^ , other than that i dont mind flirts from my **partner** or **very close friends** !! <3*
+*❝ i will hide freely if ur problematic or just plainly weird/rude*
 
-*๋࣭⭑ please use **tone-tags** with me ! , i cant really tell whether you're joking or not and that really makes me itch my brain trying to tell if you are or not , i will move away from you or go nonverbal when uncomfortable with something or someone (｡•ㅅ•｡)♡*
+*❝ i make sexual , kms / kys jokes **(tell me if it makes you uncomfy)***
 
-*๋࣭⭑ i make kys / kms / sexual jokes **( inform me if your uncomfortable with any of these things )***
+*❝ i jokingly flirt w everyone around me , dont take it srsly ^_^ !*
 
-*๋࣭⭑ i'm a really socially awkward person so you will find me either yapping to my friends alot or idk .*
+*❝ mostly on roblox or discord , feel free to whisp !*
 
 ![gif #7](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/dd4018d9-8a29-49ef-96d8-b4c8d93f28f7)
 
