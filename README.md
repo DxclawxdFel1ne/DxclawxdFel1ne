@@ -1,4 +1,4 @@
-*![download (1)](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/322acd98-c1cb-47d9-99ab-db6d7061bd41)
+![download (1)](https://github.com/DxclawxdFel1ne/DxclawxdFel1ne/assets/165260659/322acd98-c1cb-47d9-99ab-db6d7061bd41)
 
 **—— ★ ❝ あなたがこの偽者を扱えるかどうか見てみましょう! ❝ ★ ——**
 
